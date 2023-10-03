@@ -1,1 +1,1 @@
-# this is my  STore products 
+# THIS is my STORE PRODUCTS 
